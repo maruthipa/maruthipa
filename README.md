@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning ....................
 - 💞️ I’m looking to collaborate on ...
 - 📫 Please feel free to reach me 
-     Mobile Num#: 8977359950 / 9121089950
-     Email id#: maruthince25@gmail.com
+     Mobile Num#: 8977359950 / 9121089950 || 
+     Email id#: maruthince25@gmail.com || 
      LinkedIn Profile: https://www.linkedin.com/in/maruthi-paalakati/
 
 
