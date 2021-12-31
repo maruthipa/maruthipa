@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Maruthi Paalakati
-- 👀 I’m interested in learning cutting edges technologies.
+- 👀 I’m interested in learning cutting edge technologies to resolve my problems.
 - 🌱 I’m currently learning ....................
 - 💞️ I’m looking to collaborate on ...
 - 📫 Please feel free to reach me 
