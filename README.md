@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning cutting edge technologies to resolve my problems.
 - 🌱 I’m currently learning ....................
 - 💞️ I’m looking to collaborate on ...
-- 📫 Please feel free to reach me 
+- 📫 Please feel free to reach me on following 
      Mobile Num#: 8977359950 / 9121089950 || 
      Email id#: maruthince25@gmail.com || 
      LinkedIn Profile: https://www.linkedin.com/in/maruthi-paalakati/
